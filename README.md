@@ -18,4 +18,8 @@
 
 4.中国外国随便切换。
 
+官方地址在这里：https://promoter.onelink.me/wiVh/c8fa3cb0  第一次打开软件对话框 填写推荐ID：18489978 获取3天试用，加上原本的一天一共四天。
+
+这里真心推荐，你们试一下就知道了。
+
 ![image](https://github.com/lllgggsss/fanqiang/blob/main/19150300-e2960576090a1bd6.png)
